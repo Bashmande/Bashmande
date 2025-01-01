@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Bashmande
 - 👀 I’m interested in IT
-- 🌱 I’m currently learning Cloud engineering 
+- 🌱 I’m proficient Cloud engineer in the making
 - 💞️ I’m looking to collaborate on learning 
 - 📫 How to reach me https://www.instagram.com/bashmande?igsh=MTRpdHI2azhudzZibA==
 - 😄 Pronouns: He
